@@ -1,16 +1,14 @@
-## Hi there 👋
+## boas vindas ao meu perfil 👋
+.meu nome È biazinha do grau
+. 🔭 estou estudndo na alura 
+.🌱 estou me desenvolvendo na 
+liguagem JavaScript 
+.👯 utilizo esse espaço para minhas 
+.organizaçÂo e compartilhamento dos meus
+.projetos desenvolvidos 
+.🤔 mais informaçoes entre com o youtube ......
 
-<!--
-**biazinhadograu019/biazinhadograu019** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ https://tenor.com/pt-BR/view/tomex-gif-7786037802148897224
+)
+ 
+ 
