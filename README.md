@@ -15,7 +15,7 @@
 .🤔 mais informaçoes entre com o youtube ......
 
 
-![](https://tenor.com/pt-BR/view/tomex-gif-7786037802148897224)
+![](https://media1.tenor.com/m/bA2QIPzZIcgAAAAC/tomex.gif)
 
  
  **você pode entrar em contato comigo 📧**
